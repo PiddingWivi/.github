@@ -1,6 +1,4 @@
-## Hi there 👋
-
-<!--
+## Hello earthings 👁️
 
 **M2S™ ConglomerateGroupInc. JamalNWA® PiddingAI® aizoo®:**
 
